@@ -68,7 +68,7 @@ A safer, smarter banking ecosystem
 
 📬 Contact
 Shivanshu
-LinkedIn Profile- www.linkedin.com/in/shivanshu455
+LinkedIn Profile- www.linkedin.com/in/shivanshuu45
 
 📜 License & Usage
 Protected under intellectual property law. Unauthorized use, reproduction, or commercialization is prohibited without permission. Patent pending.
